@@ -9,7 +9,7 @@ Serve uma pessoa com fome ou duas pessoas normais
 - 1 pacote de talharim Dé, nº 1 ou 2.
 - 1 colher de sopa cheia de manteiga
 - 1/2 colher de chá de sal
-- 6 cabeças de alho branco descascadas. Se for do roxo, use um pouco menos.
+- 6 dentes de alho branco descascadas. Se for do roxo, use um pouco menos.
 - folhas de manjericão a gosto. Se tiver do roxo, melhor ainda.
 - parmesão ralado a gosto
 
