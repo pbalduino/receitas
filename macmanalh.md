@@ -29,6 +29,6 @@ Serve uma pessoa com fome ou duas pessoas normais
 
 Experimente também com sálvia no lugar do manjericão.
 
-Acompanha bem com vinho ou Coca Cola trincando de gelada.
+Vai bem com vinho ou Coca Cola trincando de gelada.
 
 Buon appetito!
