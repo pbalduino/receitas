@@ -6,7 +6,7 @@ Serve uma pessoa com fome ou duas pessoas normais
 
 ## Ingredientes
 
-- 1 pacote de talharim Dé, nº 1 ou 2.
+- 1/2 pacote de talharim Dé, nº 1 ou 2.
 - 1 colher de sopa cheia de manteiga
 - 1/2 colher de chá de sal
 - 6 dentes de alho branco descascadas. Se for do roxo, use um pouco menos.
